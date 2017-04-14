@@ -7,4 +7,4 @@ It is meant to help students, and should not be sold and redistributed without a
 
 All the best for the upcoming exams!
 
-If you find my notes helpful, and would like to buy me a tea. Here's the link : paypal.me/KiatHan :P
+If you find my notes helpful, and would like to buy me a tea. Here's the link :  [paypal.me/kiathan](https://paypal.me/KiatHan) :P
